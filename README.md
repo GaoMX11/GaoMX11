@@ -4,7 +4,7 @@ I am currently an undergraduate student at Tsinghua University, Weiyang College,
 
 Additionally, due to interest in statistics, I am taking relevant courses as well.
 
-An incoming 2025 fall PhD candidate.  
+An incoming 2025 fall PhD applicant.  
 
 
 <!---
