@@ -1,6 +1,6 @@
 Hi, this is @GaoMX11.
 
-I am currently a undergraduate student at Tsinghua University, Weiyang College, pursuing a double major in Fundamenal Mathematics and Physics & Civil Engnieering and Systems. 
+I am currently an undergraduate student at Tsinghua University, Weiyang College, pursuing a double major in Fundamental Mathematics and Physics & Civil Engnieering and Systems. 
 
 Additionally, due to interest in statistics, I am taking relevant courses as well.
 
